@@ -1,0 +1,2 @@
+# Ipiales-Marlon_Quilca-Edison_Pozo-Andres_Lab2_SE
+Ipiales Marlon_Quilca Edison_Pozo Andres_Lab2_SE
